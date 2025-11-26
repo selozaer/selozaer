@@ -10,7 +10,7 @@
    ${\textsf{\color{#47728f} }}$<br>
     ${\textsf{\color{#47728f} }}$<br>
   
-   ${\textsf{\color{#47728f} sean ou nash . she / her , angel / angelself}}$<br>
+   ${\textsf{\color{#47728f} sean ou nash . xhe / xer , angel / angelself}}$<br>
 
    <p align="center"> 
 ${\textsf{\color{#47728f} }}$<br>
@@ -26,6 +26,7 @@ ${\textsf{\color{#47728f} }}$<br>
 
    <p align="center"> 
 ${\textsf{\color{#47728f} }}$<br>
-${\textsf{\color{#47728f} iwec w me , i get offended easily , c*h enc ! }}$<br>
+${\textsf{\color{#47728f} iwec w me , i get offended eaxily , c*h enc ! }}$<br>
+${\textsf{\color{#47728f} and plx xign my ata ! }}$<br>
 
 <img width="890" height="auto" alt="1000057047" src="https://i.postimg.cc/kD3hZv5G/1.png" />
