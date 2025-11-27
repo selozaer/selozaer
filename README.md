@@ -26,7 +26,7 @@
    <br>
    <br>
 
-   <img src="https://i.postimg.cc/BZ8tcB9k/Bez-nazvania30-20251124190603.png" align="left" width="40%"></a>
+
 
    
    
