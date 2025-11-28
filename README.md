@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=selozaer-fire&color=1E2460&style=plastic&label=bloxxed!)
+
 <div align="center">
   
 <img width="890" height="auto" alt="1000057047" src="https://i.postimg.cc/dQ6xqrS6/2.png" />
