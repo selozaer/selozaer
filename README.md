@@ -23,6 +23,7 @@
 
 
  ${\textsf{\color{#47728f} minor ʚɞ ESFJ ₊⊹ omnisexual ꒰>⩊<꒱ taken }}$<br> 
+  ${\textsf{\color{#47728f} multishipper  }}$<br> 
 
    <div align="center">
    <br>
@@ -37,7 +38,6 @@
 
    <p align="center"> 
    ${\textsf{\color{#47728f} iwec w me , i get offended eaxily , c*h enc !}}$<br>
-   <br>
      ${\textsf{\color{#47728f} and xign myy ata ,, gigglex. }}$<br>
     
 
